@@ -1,3 +1,4 @@
+<img src="https://raw.githubusercontent.com/OFOREDEEMER/OFOREDEEMER/main/ChatGPT%20Image%20Jun%203,%202025,%2002_38_49%20PM.png" alt="Faith Olamide Oladeji Banner" width="100%" />
 # 👑 Faith Olamide Oladeji  
 **Sovereign Systems Architect | Founder of SoulSystems | AI-Human Co-Evolution Strategist**
 
